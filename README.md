@@ -1,1 +1,1 @@
-# LPU
+# LPU UNIVERSITY
